@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mukeshsindhe
-- 👀 I’m interested in ...travelling, learning new technology, 
+- 👀 I’m interested in ...travelling,exploring, learning new technology,intrested in automobiles. 
 - 🌱 I’m currently learning ...UI/UX
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...7674809767
